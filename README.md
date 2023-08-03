@@ -1,0 +1,4 @@
+- 👋 Oi, Sou o Lukinhas
+- 👀 Estou interessado em progamação
+- 🌱 Atualmente estou aprendendo Emprendedorismo
+- 💞️ Estou Colaborando em Finalizar o Curso 
